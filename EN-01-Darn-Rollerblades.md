@@ -2,11 +2,11 @@
 
 **Darn Rollerblades**
 
-It was a beautiful sunny day, and Emma decided to go rollerblading in the park with Jirka. She loved the feeling of freedom as she sped along the smooth asphalt. But that day, everything went wrong. On a fast descent from a gentle slope, she lost control of her rollerblades. She tried to brake, but the blades got stuck on the edge of the path, and she crashed hard onto the asphalt.
+It was a beautiful sunny day, and Emma decided to go rollerblading in the park with George. She loved the feeling of freedom as she sped along the smooth asphalt. But that day, everything went wrong. On a fast descent from a gentle slope, she lost control of her rollerblades. She tried to brake, but the blades got stuck on the edge of the path, and she crashed hard onto the asphalt.
 
-She felt a sharp pain in her elbow as she hit the ground. She tried to get up, but her arm refused to move. Jirka, who was skating a little behind her, immediately stopped and rushed to help. "Are you okay?" he asked, but Emma just shook her head, tears of pain streaming down her cheeks. She knew something was wrong. Jirka helped her up, took off her skates, and carefully led her to the car, which luckily wasn't far away, to take her to the hospital.
+She felt a sharp pain in her elbow as she hit the ground. She tried to get up, but her arm refused to move. George, who was skating a little behind her, immediately stopped and rushed to help. "Are you okay?" he asked, but Emma just shook her head, tears of pain streaming down her cheeks. She knew something was wrong. George helped her up, took off her skates, and carefully led her to the car, which luckily wasn't far away, to take her to the hospital.
 
-In the car, Emma tried to take deep breaths, but the pain was becoming almost unbearable. Jirka comforted her and drove as carefully as possible to avoid hurting her more. When they arrived at the hospital, she was immediately taken to the emergency room.
+In the car, Emma tried to take deep breaths, but the pain was becoming almost unbearable. George comforted her and drove as carefully as possible to avoid hurting her more. When they arrived at the hospital, she was immediately taken to the emergency room.
 
 When they arrived, she was quickly seated in a wheelchair and taken to the emergency room. A nurse gently helped her take off her sports shirt, and Emma realized how helpless she felt. The doctor arrived quickly, his face showing compassion and professionalism. "This doesn't look good," he said after a quick examination, "we'll see more after the X-ray."
 

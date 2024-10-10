@@ -22,7 +22,7 @@ Sedla si ke stolu a vychutnávala si svůj pokrm, teda spíš se snažila se moc
 Posledním úkolem byla vše naházet do myčky a vyprané prádlo do sušičky. Jak si Emma zvykala pomalu na sádru byly tohle jednoduché úkoly, které ale snadno přidávali body k úspěchům každoddněch povinností.
 
 Odpoledne Emmě uteklo v klidném tempu. Zabalila se do měkké deky a udělala si pohodlí na pohovce, kde měla připravené polštáře od Jirky. Ještě před tím si připravila na stolek šálek horkého čaje s medem a citronem, který si vychutnávala při čtení knihy. Četla příběh, který ji úplně pohltil; každá stránka ji přenášela do jiného světa, kde se ztrácela v živých popisech a zajímavých postavách, takže téměř zapoměla na svoje zranění. Po několika hodinách čtení si na chvíli zdřímla, unavená z intenzivního prožitku a asi i otravného tahání sádry. 
-Probudila se s úsměvem na tváři a pocitem naprostého uvolnění přesně ve chvíly, kdy Jirka přišel domů.
+Probudila se s úsměvem na tváři a pocitem naprostého uvolnění přesně ve chvíli, kdy Jirka přišel domů.
 Rychle se rozhodli, že večeři připraví společně. Emmě to moc nešlo, protože jí všude překážela ruka v sádře, ale Jirka jí pomáhal, takže to docela odsýpalo. V kuchyni zavládla veselá atmosféra plná smíchu a komických momentů, jako když Emma nešikovně rozsypala špagety, nebo když jí vyklouzla odměrka s vodou, protože jí na ruce v sádře nejvíc chyběl palec, který trčel nahoru a nedalo se s ním nic pořádně chytit.
 
 Nakonec se jim podařilo připravit výtečné jídlo, na kterém si oba moc pochutnali. U stolu si pak pochutnali na svém společném díle a užili si i zábavu, protože narozdíl od oběda, kdy si Emma musela poradit sama, ji teď Jirka tak trochu nakrmil, aby nemusela špagety jíst studené.

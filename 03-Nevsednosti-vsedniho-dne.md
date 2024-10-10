@@ -25,5 +25,5 @@ Odpoledne Emmě uteklo v klidném tempu. Zabalila se do měkké deky a udělala 
 Probudila se s úsměvem na tváři a pocitem naprostého uvolnění přesně ve chvíli, kdy Jirka přišel domů.
 Rychle se rozhodli, že večeři připraví společně. Emmě to moc nešlo, protože jí všude překážela ruka v sádře, ale Jirka jí pomáhal, takže to docela odsýpalo. V kuchyni zavládla veselá atmosféra plná smíchu a komických momentů, jako když Emma nešikovně rozsypala špagety, nebo když jí vyklouzla odměrka s vodou, protože jí na ruce v sádře nejvíc chyběl palec, který trčel nahoru a nedalo se s ním nic pořádně chytit.
 
-Nakonec se jim podařilo připravit výtečné jídlo, na kterém si oba moc pochutnali. U stolu si pak pochutnali na svém společném díle a užili si i zábavu, protože narozdíl od oběda, kdy si Emma musela poradit sama, ji teď Jirka tak trochu nakrmil, aby nemusela špagety jíst studené.
+Nakonec se jim podařilo připravit výtečné jídlo. U stolu si pak pochutnali na svém společném díle a užili si i zábavu, protože narozdíl od oběda, kdy si Emma musela poradit sama, ji teď Jirka tak trochu nakrmil, aby nemusela špagety jíst studené.
 Po večeři si pustili oblíbený film a užívali si společný čas. Přirozeně, skončili večer se skleničkou vína, dlouhým povídáním a později i pěkným sexem.

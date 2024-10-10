@@ -4,7 +4,7 @@ Emma se usadila na pohovce a cítila, jak se jí konečně ulevilo od cestován�
 
 "Chceš něco na pití?" zeptal se Jirka, Emma přikývla a s unaveným úsměvem jemně špitla "Martini, protřepat, nemíchat", zvedl se z pohovky a zamířil od kuchyně připravit skleničku martiny. Když se vrátil, Emma usrkávala pití začínala si uvědomovat, jak dlouhá cesta před ní ještě je. Jirka si sedl vedle ní a vzal její nohy do svých rukou. Evidentně se pripravil na její oblíbenou masáž, protože si spolu s martini přinesl i její oblíbený růžový masážní olejíček.
 
-"Nech mě ti trochu ulevit," řekl a s úsměvem si položil její dlouhé nohy na sebe a začal je jemně masírovat. Emma se pohodlně opřela zavřela oči, ve zdravé ruce svírala skleničku se zbytkem Martini a nechávala se unášet pocitem uvolnění. Jirka se pečlivě zaměřil na každý kousek jejích chodidel a prstů, které byly napjaté po stresujícím odpoledni v nemocnici.
+"Nech mě ti trochu ulevit," řekl a s úsměvem si položil její dlouhé nohy na sebe a začal je jemně masírovat. Emma se pohodlně opřela, zavřela oči, ve zdravé ruce svírala skleničku se zbytkem Martini a nechávala se unášet pocitem uvolnění. Jirka se pečlivě zaměřil na každý kousek jejích chodidel a prstů, které byly napjaté po stresujícím odpoledni v nemocnici.
 
 Pomalu přejel svymi prsty po jejích chodidlech a pak se zaměřil na každý její prst zvlášť. Emma cítila, jak napětí postupně ustupuje a nohy  se jí uvolňují a prohřívají. Každý jemný dotek Jirkových rukou jí přinášel úlevu ale i pocit vzrušení. Odložila dopité martini.
 

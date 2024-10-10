@@ -20,6 +20,8 @@ V posteli, kam ji Jirka odnesl po masáži a kde si dobře užili i se sádrou, 
 
 Slyšela z koupelny téct vodu, jak se Jirka koupal a v klidu si teď prohlížela sádru, byla stále ještě vlhká a na dotek i studená a truchu voněla po sádře, ale mísila se tam i vůně růží. Trochu jí to vzrušovalo. Stejně tak se jí podivně líbilo to její "vězení" se kterým jí Jirka pomáhal.
 
-První koupání bylo jedním z prvních komplikací, které Emma musela překonat. Jirka jí pomohl opatrně se dostat do sprchy, kam se nacpal k ní, a ruku v sádře pečlivě přidržoval nahoře, aby se nenamočila. Myla si tělo jednou rukou, zatímco Jirka jí pomáhal s těžko dostupnými místy a s přidržováním sádry. Když se dosprchovali, ještě ve sprše se znovu pomilovali. Pak ji Jirka znovu pomohl s mytím, a usušením, pomohl jí rozplést cop a konečně se vydali na kutě.
+První koupání bylo jedním z prvních komplikací, které Emma musela překonat. Jirka jí pomohl opatrně se dostat do sprchy, kam se nacpal k ní, a ruku v sádře pečlivě přidržoval nahoře, aby se nenamočila. Myla si tělo jednou rukou, zatímco Jirka jí pomáhal s těžko dostupnými místy a s přidržováním sádry. Když se dosprchovali, ještě ve sprše se znovu pomilovali. 
+
+Pak ji Jirka znovu pomohl s mytím, a usušením. Udělal lehkou večeři, pomohl jí rozplést cop a rozčesat její rudou hřívu a konečně se vydali na kutě.
 
 První noc byla náročná. Emma se snažila najít pohodlnou polohu na spaní, ale sádra jí bránila v pohybu. Ráno se probudila s bolestí v rameni a lokti. Jirka jí v rychlosti připravil snídani drobnou snídani do postele. "Bude to těžké, ale budeš to muset zvládnout sama, pádím do práce." Osaměla.

@@ -6,9 +6,9 @@ Byl krásný slunečný den a Emma se rozhodla vyrazit na kolečkové brusle do 
 
 Cítila ostrou bolest v lokti, když dopadla. Snažila se vstát, ale ruka jí odmítala poslouchat. Jirka, který jel kousek za ní, okamžitě zastavil a přiskočil na pomoc. "Jsi v pořádku?" zeptal se, ale Emma jen zavrtěla hlavou, slzy bolesti jí stékaly po tvářích. Věděla, že něco není v pořádku. Jirka jí pomohl vstát, zul jí brusle a opatrně ji odvedl k autu, které naštěstí nebylo daleko, aby ji odvezl do nemocnice.
 
-V autě se Emma snažila zhluboka dýchat, ale bolest se stávala téměř nesnesitelná. Jirka ji uklidňoval a snažil se řídit co nejopatrněji, aby jí neublížil ještě víc. Když dorazili do nemocnice, okamžitě ji odvedli na pohotovost.
+V autě se Emma snažila zhluboka dýchat, ale bolest se stávala téměř nesnesitelná. Jirka ji uklidňoval a snažil se řídit co nejopatrněji, aby jí neublížil ještě víc. Když dorazili, okamžitě ji posadili do kolečkového křesla a odvezli na pohotovost. 
 
-Když dorazili, okamžitě ji posadili do kolečkového křesla a odvezli na pohotovost. Zdravotní sestra jí jemně pomohla sundat sportovní tričko, a Emma si uvědomila, jak bezmocná se cítí. Lékař přišel rychle, jeho obličej vyjadřoval soucit a profesionalitu. "Tohle tohle nevypadá dobře," řekl po rychlém ohledání,"více uvidíme po rentgenu".
+Zdravotní sestra jí jemně pomohla sundat sportovní tričko, a Emma si uvědomila, jak bezmocná se cítí. Lékař přišel rychle, jeho obličej vyjadřoval soucit a profesionalitu. "Tohle tohle nevypadá dobře," řekl po rychlém ohledání,"více uvidíme po rentgenu".
 
 Nejdříve Emmu poslali na rentgen. Cítila, jak se její tep zrychluje, když ji zdravotníci přemístili na tvrdou kovovou desku. Snažila se zůstat klidná, zatímco rentgenový technik přesně zaměřoval její ruku. Během několika minut byly snímky hotové a lékař je pečlivě prozkoumal. "Zlomenina je čistá, ale bude potřebovat delší dobu na hojení," řekl.
 
